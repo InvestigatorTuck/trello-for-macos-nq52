@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with elite Trello for macOS Extension | database templates + AI assistant, the #1 extension. Includes database templates and AI assistant for a smoother
 
 
 
